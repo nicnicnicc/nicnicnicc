@@ -1,4 +1,5 @@
-<img width="728" height="466" alt="1000010689" src="https://github.com/user-attachments/assets/7c7591bc-c2da-4e7d-9efa-4b4a2a8e4f6b" />
+<img width="1536" height="983" alt="1000010762" src="https://github.com/user-attachments/assets/b85db9e4-7c8a-400c-80dc-25b61f8c54a5" />
+
 
 # 𝓗𝓮𝓵𝓵𝓸, 𝓘'𝓶 𝓕𝓪𝓽𝓲𝓱
 <img width="736" height="520" alt="1000010695" src="https://github.com/user-attachments/assets/c5fdb015-6bd9-445a-a310-958c0d3277dd" />
