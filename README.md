@@ -1,5 +1,4 @@
-<img width="1536" height="983" alt="1000010762" src="https://github.com/user-attachments/assets/b85db9e4-7c8a-400c-80dc-25b61f8c54a5" />
-
+<img src="https://github.com/user-attachments/assets/b85db9e4-7c8a-400c-80dc-25b61f8c54a5" />
 
 # 𝓗𝓮𝓵𝓵𝓸, 𝓘'𝓶 𝓕𝓪𝓽𝓲𝓱
 <img width="736" height="520" alt="1000010695" src="https://github.com/user-attachments/assets/c5fdb015-6bd9-445a-a310-958c0d3277dd" />
@@ -18,9 +17,7 @@
 **𝑰 𝒄𝒉𝒐𝒔𝒆 𝒕𝒉𝒊𝒔 𝒇𝒊𝒆𝒍𝒅 𝒂𝒔 𝒑𝒂𝒓𝒕 𝒐𝒇 𝒎𝒚 𝒔𝒄𝒉𝒐𝒐𝒍 𝒋𝒐𝒖𝒓𝒏𝒆𝒚, 𝒘𝒉𝒊𝒍𝒆 𝑰 𝒂𝒍𝒔𝒐 𝒉𝒂𝒗𝒆 𝒎𝒚 𝒐𝒘𝒏 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 𝒐𝒖𝒕𝒔𝒊𝒅𝒆 𝒐𝒇 𝒔𝒄𝒉𝒐𝒐𝒍.**
 
 **𝑰'𝒎 𝒑𝒂𝒓𝒕𝒊𝒄𝒖𝒍𝒂𝒓𝒍𝒚 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒆𝒅 𝒊𝒏 𝒂𝒓𝒕, 𝒅𝒊𝒈𝒊𝒕𝒂𝒍 𝒂𝒓𝒕, 𝒂𝒏𝒅 𝒈𝒓𝒂𝒑𝒉𝒊𝒄 𝒅𝒆𝒔𝒊𝒈𝒏. 𝑰 𝒆𝒏𝒋𝒐𝒚 𝒄𝒓𝒆𝒂𝒕𝒊𝒏𝒈 𝒕𝒉𝒊𝒏𝒈𝒔 𝒂𝒏𝒅 𝒑𝒍𝒂𝒚𝒊𝒏𝒈 𝒂𝒓𝒐𝒖𝒏𝒅 𝒘𝒊𝒕𝒉 𝒅𝒊𝒇𝒇𝒆𝒓𝒆𝒏𝒕 𝒗𝒊𝒔𝒖𝒂𝒍 𝒊𝒅𝒆𝒂𝒔.**
-<img width="1536" height="1024" alt="1000010675" src="https://github.com/user-attachments/assets/5656c448-f59d-4b6f-847a-613bab0a9107" />
-
-
+<img src="https://github.com/user-attachments/assets/5656c448-f59d-4b6f-847a-613bab0a9107" />
 # 𝓘𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓼
   
 **𝑫𝒊𝒈𝒊𝒕𝒂𝒍 𝑨𝒓𝒕**  
@@ -32,7 +29,7 @@
 
 **𝑰 𝒅𝒐𝒏'𝒕 𝒓𝒆𝒂𝒍𝒍𝒚 𝒉𝒂𝒗𝒆 𝒐𝒏𝒆 𝒇𝒊𝒙𝒆𝒅 𝒉𝒐𝒃𝒃𝒚. 𝑴𝒚 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 𝒄𝒂𝒏 𝒄𝒉𝒂𝒏𝒈𝒆 𝒅𝒆𝒑𝒆𝒏𝒅𝒊𝒏𝒈 𝒐𝒏 𝒎𝒚 𝒎𝒐𝒐𝒅, 𝒎𝒚 𝒇𝒓𝒆𝒆 𝒕𝒊𝒎𝒆, 𝒐𝒓 𝒔𝒊𝒎𝒑𝒍𝒚 𝒘𝒉𝒂𝒕 𝑰 𝒇𝒊𝒏𝒅 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒊𝒏𝒈 𝒂𝒕 𝒕𝒉𝒆 𝒎𝒐𝒎𝒆𝒏𝒕.**
 
-<img width="728" height="466" alt="1000010688" src="https://github.com/user-attachments/assets/084e11fd-e133-483d-a143-d37cd9da4e35" />
+<img src="https://github.com/user-attachments/assets/084e11fd-e133-483d-a143-d37cd9da4e35" />
 
 # 𝓐 𝓑𝓲𝓽 𝓜𝓸𝓻𝓮 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮
 
@@ -41,7 +38,7 @@
 **𝑰 𝒂𝒎 𝒑𝒓𝒆𝒕𝒕𝒚 𝒐𝒑𝒆𝒏 𝒕𝒐 𝒅𝒊𝒇𝒇𝒆𝒓𝒆𝒏𝒕 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 𝒂𝒏𝒅 𝒊 𝒍𝒊𝒌𝒆 𝒅𝒊𝒔𝒄𝒐𝒗𝒆𝒓𝒊𝒏𝒈 𝒏𝒆𝒘 𝒕𝒉𝒊𝒏𝒈𝒔 𝒘𝒊𝒕𝒉𝒐𝒖𝒕 𝒉𝒂𝒗𝒊𝒏𝒈 𝒕𝒐 𝒔𝒕𝒊𝒄𝒌 𝒕𝒐 𝒐𝒏𝒆 𝒕𝒉𝒊𝒏𝒈.**
 
 **𝑹𝒊𝒈𝒉𝒕 𝒏𝒐𝒘, 𝑰'𝒎 𝒂𝒍𝒔𝒐 𝒃𝒖𝒔𝒚 𝒘𝒊𝒕𝒉 𝒎𝒚 𝒇𝒂𝒎𝒊𝒍𝒚, 𝒔𝒐 𝒎𝒚 𝒇𝒓𝒆𝒆 𝒕𝒊𝒎𝒆 𝒄𝒂𝒏 𝒃𝒆 𝒂 𝒍𝒊𝒕𝒕𝒍𝒆 𝒖𝒏𝒑𝒓𝒆𝒅𝒊𝒄𝒕𝒂𝒃𝒍𝒆. 𝑩𝒖𝒕 𝑰 𝒔𝒕𝒊𝒍𝒍 𝒕𝒓𝒚 𝒕𝒐 𝒎𝒂𝒌𝒆 𝒕𝒊𝒎𝒆 𝒇𝒐𝒓 𝒕𝒉𝒊𝒏𝒈𝒔 𝑰 𝒆𝒏𝒋𝒐𝒚.**
-<img width="728" height="466" alt="1000010692" src="https://github.com/user-attachments/assets/7d7f1774-7a82-474a-a95f-7cdbc0a5b274" />
+<img src="https://github.com/user-attachments/assets/7d7f1774-7a82-474a-a95f-7cdbc0a5b274" />
 
 # 𝓛𝓪𝓷𝓰𝓾𝓪𝓰𝓮𝓼
 
@@ -66,11 +63,11 @@
 
 **𝑬𝒏𝒋𝒐𝒚𝒊𝒏𝒈 𝒕𝒉𝒆 𝒍𝒊𝒕𝒕𝒍𝒆 𝒕𝒉𝒊𝒏𝒈𝒔**
 
-<img width="676" height="1200" alt="1000010717" src="https://github.com/user-attachments/assets/5a4d8bfd-1806-4298-81cc-132149ea6aa7" />
+<img src="https://github.com/user-attachments/assets/5a4d8bfd-1806-4298-81cc-132149ea6aa7" />
 
 # 𝓣𝓱𝓪𝓽'𝓼 𝓐𝓫𝓸𝓾𝓽 𝓘𝓽
 
 **𝑰'𝒎 𝒔𝒕𝒊𝒍𝒍 𝒇𝒊𝒈𝒖𝒓𝒊𝒏𝒈 𝒐𝒖𝒕 𝒘𝒉𝒂𝒕 𝑰 𝒘𝒂𝒏𝒕 𝒕𝒐 𝒅𝒐 𝒊𝒏 𝒕𝒉𝒆 𝒇𝒖𝒕𝒖𝒓𝒆, 𝒂𝒏𝒅 𝑰 𝒕𝒉𝒊𝒏𝒌 𝒕𝒉𝒂𝒕'𝒔 𝒐𝒌𝒂𝒚. 𝑭𝒐𝒓 𝒏𝒐𝒘, 𝑰 𝒋𝒖𝒔𝒕 𝒘𝒂𝒏𝒕 𝒕𝒐 𝒍𝒆𝒂𝒓𝒏, 𝒄𝒓𝒆𝒂𝒕𝒆, 𝒎𝒆𝒆𝒕 𝒈𝒐𝒐𝒅 𝒑𝒆𝒐𝒑𝒍𝒆, 𝒂𝒏𝒅 𝒆𝒏𝒋𝒐𝒚 𝒕𝒉𝒆 𝒋𝒐𝒖𝒓𝒏𝒆𝒚.**
 
 **𝓲 𝓶𝓲𝓰𝓱𝓽 𝓫𝓮 𝓿𝓮𝓻𝔂 𝓭𝓲𝓼𝓽𝓾𝓻𝓫𝓲𝓷𝓰 𝓪𝓻𝓸𝓾𝓷𝓭 𝓶𝔂 𝓯𝓻𝓲𝓮𝓷𝓭𝓼 𝓫𝓾𝓽 𝓲𝓶 𝓻𝓮𝓪𝓵𝓵𝔂 𝓯𝓻𝓲𝓮𝓷𝓭𝓵𝔂 𝔂𝓸𝓾 𝓬𝓪𝓷 𝓪𝓹𝓹𝓻𝓸𝓪𝓬𝓱 𝓪𝓷𝓭 𝓬𝓱𝓪𝓽 𝔀𝓲𝓽𝓱 𝓶𝓮 𝔀𝓱𝓮𝓷𝓮𝓿𝓮𝓻 𝔂𝓸𝓾 𝓵𝓲𝓴𝓮**
-<img width="728" height="466" alt="1000010698" src="https://github.com/user-attachments/assets/2a418c12-d888-4254-9d1b-e29cba3bcf97" />
+<img src="https://github.com/user-attachments/assets/2a418c12-d888-4254-9d1b-e29cba3bcf97" />
